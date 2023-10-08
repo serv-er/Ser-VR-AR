@@ -1,3 +1,7 @@
-# Ser-VR-AR
-this is how 
-![start photo of project](https://github.com/Serve-er/Ser-VR-AR/assets/120189782/55275c80-4a0c-4a9b-811c-4005a88100f6)
+ASTRAL REALM
+
+YOU CAN SEE OUR PROJECT IN FOLLOWING IMAGES:-
+
+![second page](https://github.com/Serve-er/Ser-VR-AR/assets/120189782/dad45960-3add-4b11-978e-446ca7321d99)
+
+
